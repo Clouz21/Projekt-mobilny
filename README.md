@@ -1,1 +1,1 @@
-.
+Liczymy na dobrą ocene
